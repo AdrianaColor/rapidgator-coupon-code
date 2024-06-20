@@ -12,4 +12,4 @@ ___
 
 🔥🔥🔥 ***We offer Rapidgator Coupons for both new and existing customers. You can receive Promo Codes, and avail of today's biggest coupon saving on your orders***
 
-[<img src="https://github.com/AdrianaColor/rapidgator-coupon-code/blob/main/c.png"/>](https://crunchtime.motorcycles/?keyword=rapid_coup)
+[<img src="https://github.com/AdrianaColor/rapidgator-coupon-code/blob/main/c.png"/>](https://bit.ly/3VROTwq)
